@@ -1,1 +1,6 @@
 # git_test
+SALUT GITHUB !!!
+i am learnign how to use github hta l7e9t 2cp tbahdayel :)))
+mohim maelich sa7 fel akhla9 hhhh
+dok nkemel n'uploadi gae les tp hna psk ni fargha chghol
+pas vraomenrt les ci smana jaya wana ni na hhhhh
